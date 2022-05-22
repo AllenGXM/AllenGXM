@@ -1,4 +1,4 @@
-### 𐌀𐑛⇂ᕮ𝓝▁𝙂✘Պ Here! <img src="https://github.com/AllenGXM/AllenGXM/blob/main/standard.gif" width="360px">
+### 𐌀𐑛⇂ᕮ𝓝▁𝙂✘Պ Here! <img src="https://raw.githubusercontent.com/AllenGXM/AllenGXM/main/standard.gif" width="360px">
 
 <!--
 **AllenGXM/AllenGXM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
