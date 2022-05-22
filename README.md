@@ -1,17 +1,13 @@
-### 𐌀𐑛⇂ᕮ𝓝▁𝙂✘Պ Here! 
-<img src="https://raw.githubusercontent.com/AllenGXM/AllenGXM/main/standard.gif" width="300px">
+# 𐌀𐑛⇂ᕮ𝓝▁𝙂✘Պ Here! <img src="https://emoji.discord.st/emojis/788f3a39-7ecf-4aee-bac0-d7c0dbbf02a3.gif" width="60px">
 
-<!--
-**AllenGXM/AllenGXM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
- 🔭 I’m currently a student
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
- 💬 Ask me about anime and games, then i would be hella happy
- 📫 How to reach me: GMAIL (Just there i wont open any mails tho) allensamc.s@gmail.com
- 😄 Pronouns: HE/HIM
- ⚡ Fun fact: I am awesome
--->
+ 🔭 I’m currently a student <img src="https://emoji.discord.st/emojis/6dd62900-e94c-4b0d-b958-a0070c755a08.gif" width="40">
+ 
+ 💬 Ask me about anime and games, then i would be hella happy <img src="https://emoji.discord.st/emojis/BlobGame.gif" width="40">
+ 
+ 📫 How to reach me: GMAIL (Just there i wont open any mails tho) allensamc.s@gmail.com<img src="https://emoji.discord.st/emojis/GoogleChrome.png" width="40">
+ 
+ 😄 Pronouns: HE/HIM<img src="https://emoji.discord.st/emojis/dd41a830-a807-46e5-90f8-df0f2b04dcea.png" width="40">
+ 
+ ⚡ Fun fact: I am **Awesome** <img src="https://c.tenor.com/fv45doRJoWgAAAAi/discord-nitro-op.gif" width="40">
+ 
+ #### for some reason gifs not loading correctly so forgive me!
