@@ -6,7 +6,7 @@
  
  📫 How to reach me: GMAIL (Just there i wont open any mails tho) allensamc.s@gmail.com<img src="https://emoji.discord.st/emojis/GoogleChrome.png" width="60">
  
- 😄 Pronouns: HE/HIM<img src="https://emoji.discord.st/emojis/dd41a830-a807-46e5-90f8-df0f2b04dcea.png" width="60">
+ 😄 GENDER : THIS GUY ><img src="https://emoji.discord.st/emojis/dd41a830-a807-46e5-90f8-df0f2b04dcea.png" width="60">
  
  ⚡ Fun fact: I am **Awesome** <img src="https://c.tenor.com/fv45doRJoWgAAAAi/discord-nitro-op.gif" width="60">
  
